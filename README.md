@@ -1,4 +1,4 @@
-Name's Lie. Not much to see here (yet).
+Name's Alie. Not much to see here (yet).
 <!---
 - 👋 Hi, I’m @alicfamahdi
 - 👀 I’m interested in ...
